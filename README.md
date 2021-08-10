@@ -19,7 +19,7 @@ Enjoy maybe..
 ![](https://osu.ppy.sh/ss/16932853/0b47)
 # [⌞Freedom Dive  ↓⌝ (w/ not trail & old hitsound's)](https://cdn.discordapp.com/attachments/787694519842766855/874610606630641674/Freedom_Dive_.osk)
 ![](https://osu.ppy.sh/ss/16932828/66c3)
-# [Rektygon & MonkoEdit w/ monochrome combo color's](https://cdn.discordapp.com/attachments/787694519842766855/874614619996581898/Rektygon__MonkoEdit.osk)
+# [Rektygon & MonkoEdit w/ monochrome combo color's](https://cdn.discordapp.com/attachments/787694519842766855/874619228118978620/Rektygon__MonkoEdit.osk)
 ![](https://osu.ppy.sh/ss/16932879/a7b2)
 # [MonkoPAN v2](https://cdn.discordapp.com/attachments/787694519842766855/874612353331765318/MonkoPAN_v2.osk)
 ![](https://osu.ppy.sh/ss/16932850/7126)
