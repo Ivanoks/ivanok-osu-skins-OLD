@@ -20,6 +20,8 @@ Enjoy maybe..
 ![](https://osu.ppy.sh/ss/16932850/7126)
 # [dracula (funorange)](https://cdn.discordapp.com/attachments/787694519842766855/874612009545650216/dracula_funorange.osk)
 ![](https://osu.ppy.sh/ss/16932845/12bf)
+# [My 2019 own skin on base owotune 1.4. (Play w/ not interface.)](https://cdn.discordapp.com/attachments/787694519842766855/874613800903540776/-__owoTuna_but_vivanov_gay__-.osk)
+![](https://osu.ppy.sh/ss/16932858/128b)
 # [#Azerite (osu player84) #2](https://cdn.discordapp.com/attachments/787694519842766855/874608999490793502/azer8dawn.osk)
 ![](https://osu.ppy.sh/ss/16932811/7ce3)
 # [Aristia (Edit) +Kapi](https://cdn.discordapp.com/attachments/787694519842766855/874604195523751996/Aristiaeditkapi.osk)
