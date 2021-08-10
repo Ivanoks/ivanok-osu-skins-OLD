@@ -4,7 +4,7 @@ My Osu! edit's skins and not only list. (P.S. Im playing w/ not interface. just 
 Enjoy maybe.. 
 
 # [SameSkinButNoFollowpoint edit](https://cdn.discordapp.com/attachments/787694519842766855/874607799106162688/SameSkinButNoFollowpoint_edit.osk)
-![](https://osu.ppy.sh/ss/16932797/c398)
+![https://cdn.discordapp.com/attachments/787694519842766855/874607799106162688/SameSkinButNoFollowpoint_edit.osk](https://osu.ppy.sh/ss/16932797/c398)
 # [dddx15longtrail (no trail)](https://cdn.discordapp.com/attachments/787694519842766855/874606534334763059/dddx15longtrail.osk)
 ![](https://osu.ppy.sh/ss/16932786/8d55)
 # [404 SkinNotFound v2](https://cdn.discordapp.com/attachments/787694519842766855/874611192491040818/404_SkinNotFound_v2.osk)
