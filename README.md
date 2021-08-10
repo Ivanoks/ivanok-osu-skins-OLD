@@ -12,7 +12,7 @@ Enjoy maybe..
 ![](https://osu.ppy.sh/ss/16932778/9efd)
 # [boop](https://cdn.discordapp.com/attachments/787694519842766855/874611604065493002/boop.osk)
 ![](https://osu.ppy.sh/ss/16932838/c170)
-# [⌞Freedom Dive  ↓⌝ (w/ not trail & old hitsound's](https://cdn.discordapp.com/attachments/787694519842766855/874610606630641674/Freedom_Dive_.osk)
+# [⌞Freedom Dive  ↓⌝ (w/ not trail & old hitsound's)](https://cdn.discordapp.com/attachments/787694519842766855/874610606630641674/Freedom_Dive_.osk)
 ![](https://osu.ppy.sh/ss/16932828/66c3)
 # [#Azerite (osu player84) #2](https://cdn.discordapp.com/attachments/787694519842766855/874608999490793502/azer8dawn.osk)
 ![](https://osu.ppy.sh/ss/16932811/7ce3)
