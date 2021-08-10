@@ -15,4 +15,6 @@ Enjoy maybe..
 # [Aristia (Edit w/ hitcircle 404) +Kapi](https://cdn.discordapp.com/attachments/787694519842766855/874606860970385458/Aristiaeditkapi404.osk)
 ![](https://osu.ppy.sh/ss/16932794/1422)
 # [#Azerite (osu player84) #2](https://cdn.discordapp.com/attachments/787694519842766855/874608999490793502/azer8dawn.osk)
-1[](https://osu.ppy.sh/ss/16932811/7ce3)
+![](https://osu.ppy.sh/ss/16932811/7ce3)
+# [《CK》 Bacon boi 1.0 『blue』](https://cdn.discordapp.com/attachments/787694519842766855/874610132137418782/CK_Bacon_boi_1.0_blue.osk)
+![](https://osu.ppy.sh/ss/16932822/02fb)
