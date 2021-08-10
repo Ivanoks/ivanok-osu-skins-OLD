@@ -13,7 +13,7 @@ Enjoy maybe..
 # [boop](https://cdn.discordapp.com/attachments/787694519842766855/874611604065493002/boop.osk)
 ![](https://osu.ppy.sh/ss/16932838/c170)
 # [osu! Default Skin Improved](https://cdn.discordapp.com/attachments/787694519842766855/874612906782769172/osu_Default_Skin_Improved.osk)
-![](https://osu.ppy.sh/ss/16932850/7126)
+![](https://osu.ppy.sh/ss/16932853/0b47)
 # [⌞Freedom Dive  ↓⌝ (w/ not trail & old hitsound's)](https://cdn.discordapp.com/attachments/787694519842766855/874610606630641674/Freedom_Dive_.osk)
 ![](https://osu.ppy.sh/ss/16932828/66c3)
 # [MonkoPAN v2](https://cdn.discordapp.com/attachments/787694519842766855/874612353331765318/MonkoPAN_v2.osk)
