@@ -1,5 +1,5 @@
 # ivanok-osu-skins
-# My Osu! edit's skins and not only list. (P.S. Im playing w/ not interface. just for you know.)
+[My Osu! edit's skins and not only list. (P.S. Im playing w/ not interface. just for you know.)]
 Enjoy maybe.. 
 
 # [SameSkinButNoFollowpoint edit](https://cdn.discordapp.com/attachments/787694519842766855/874607799106162688/SameSkinButNoFollowpoint_edit.osk)
