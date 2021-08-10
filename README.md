@@ -18,3 +18,5 @@ Enjoy maybe..
 ![](https://osu.ppy.sh/ss/16932811/7ce3)
 # [《CK》 Bacon boi 1.0 『blue』](https://cdn.discordapp.com/attachments/787694519842766855/874610132137418782/CK_Bacon_boi_1.0_blue.osk)
 ![](https://osu.ppy.sh/ss/16932822/02fb)
+# [⌞Freedom Dive  ↓⌝ (w/ not trail & old hitsound's](https://cdn.discordapp.com/attachments/787694519842766855/874610606630641674/Freedom_Dive_.osk)
+![](https://osu.ppy.sh/ss/16932828/66c3)
