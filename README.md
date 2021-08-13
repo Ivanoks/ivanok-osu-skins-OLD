@@ -9,7 +9,7 @@ Enjoy maybe..
 ![](https://osu.ppy.sh/ss/16932786/8d55)
 # [404 SkinNotFound v2 + My edit.](https://cdn.discordapp.com/attachments/787694519842766855/874611192491040818/404_SkinNotFound_v2.osk)
 ![](https://osu.ppy.sh/ss/16932832/be3a)
-# [SameSkinButNoRingHitCirclesWeirdName](https://cdn.discordapp.com/attachments/787694519842766855/875862123887079444/SameSkinButNoRingHitCirclesWeirdName.osk)
+# [SameSkinButNoRingHitCirclesWeirdName + My edit.](https://cdn.discordapp.com/attachments/787694519842766855/875862123887079444/SameSkinButNoRingHitCirclesWeirdName.osk)
 ![](https://osu.ppy.sh/ss/16945235/b11d)
 # [Vaxei DT](https://cdn.discordapp.com/attachments/787694519842766855/874615472602112010/vaxei_dt.osk)
 ![](https://osu.ppy.sh/ss/16932886/fa0f)
