@@ -1,4 +1,4 @@
-# ivanok-osu-skins
+# ivanok-osu-skins-OLD
 My Osu! edit's skins and not only list. (P.S. Im playing w/ not interface. just for you know.)
 
 Enjoy maybe.. Cuz i don't wanna update this page. Xddddddddd
